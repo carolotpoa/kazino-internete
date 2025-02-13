@@ -1,1 +1,1 @@
-# kazino-internete
+# kazino internete
